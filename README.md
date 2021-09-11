@@ -1,0 +1,2 @@
+# exemple
+portfolio pertama saya
